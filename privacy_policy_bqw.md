@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Franz Granlund built the *Bible Quotes Widget* / *Great Quotes Widget* app as a Commercial app. This app is provided by Franz Granlund and is intended for use as is.
+Franz Granlund built the *Bible Quotes Widget* app as a Commercial app. This app is provided by Franz Granlund and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my app.
 
